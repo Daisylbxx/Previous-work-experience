@@ -1,0 +1,4 @@
+Over the past five years, I have gained extensive experience in the construction industry, specializing in the field of schematic design, mainly involving residential projects. I play multiple roles in teamwork, from the overall floor plan layout and daylight calculation of residential areas, to the optimization of floor plan design and façade form of single buildings, to post text layout and quick rendering of images to communicate with clients. This gave me an in-depth understanding of the various stages of a project, thus enhancing my overall capabilities.
+
+In the real estate industry, I have met the fast-paced challenges and honed my adaptability and stress resistance. The close teamwork has further cultivated my spirit of cooperation with others. These experiences have convinced me that the power of a team can create outstanding results, and I would like to continue to grow and contribute in such an environment.
+
